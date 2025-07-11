@@ -22,4 +22,4 @@
 
 通过以上几点标准，您可以轻松找到一个既高清、又安全、无广告干扰的日本AV资源平台，让您的观影体验更加愉悦和顺畅。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/gmz20250711/rbriben6)</span>
